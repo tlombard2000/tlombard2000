@@ -1,2 +1,3 @@
 # tlombard2000
-tlombard2000's Hub
+
+Hi, I'm tlombard2000. I'm just trying to do my own thing.
